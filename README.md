@@ -1,1 +1,1 @@
-# .github
+# More info coming soon
